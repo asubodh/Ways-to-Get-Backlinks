@@ -25,7 +25,8 @@ This is a simple repository where you can submit your ideas and can learn ways o
 21. Make a list of your top post and share your social networking sites. 
 22. Write a post to the upcoming bloggers to link your blog post. 
 23. Submit your blog to.edu and.gov site to increases your domain authority. 
-24. Make Facebook Group of your blog reader. 25. Lunch or conduct a blogging contest to link your blog to it. 
+24. Make Facebook Group of your blog reader. 
+25. Lunch or conduct a blogging contest to link your blog to it. 
 26. Donate sites using your site name show that your site can get liked back. 
 27. Write blogs about celebrities because it gets more visitors nowadays. 
 28. Create a great and wonderful E-book with the link of your site. 
